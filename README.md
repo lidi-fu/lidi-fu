@@ -1,3 +1,5 @@
+Product/Experience/Visual Designer
+
 ✨ Trying to mix old-school academic art with new media art ✨
 
 Currently researching AI art's influence on people's creative expression at RCA
