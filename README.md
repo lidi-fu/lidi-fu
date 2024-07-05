@@ -1,4 +1,5 @@
-Product/Experience/Visual Designer
+Visual Artist
+Product / Experience Designer
 
 ✨ Trying to mix old-school academic art with new media art ✨
 
